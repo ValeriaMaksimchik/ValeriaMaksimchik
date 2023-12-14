@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ValeriaMaksimchik
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning ....
+- 🌱 I’m currently learning [БТЭУ ПК](http://www.i-bteu.by/)
 - 💞️ I’m looking to collaborate on ..
 
 
