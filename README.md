@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ValeriaMaksimchik
+- 👋 Hi, I’m [@ValeriaMaksimchik](https://www.instagram.com/littlemouse2302/)
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning [БТЭУ ПК](http://www.i-bteu.by/)
 - 💞️ I’m looking to collaborate on ..
